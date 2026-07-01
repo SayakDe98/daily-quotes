@@ -13,11 +13,12 @@ req = urllib.request.Request(
 with urllib.request.urlopen(req) as res:
     data = json.loads(res.read().decode())
 
-quote = data["quote"]
-author = data["author"]
+quote = data[0]["quote"]
+author = data[0]["author"]
+work = data[0]["work"]
 today = date.today().strftime("%Y-%m-%d")
 
-entry = f"\n\n## {today}\n\n> {quote}\n>\n> — {author}\n"
+entry = f"\n\n## {today}\n\n> {quote}\n>\n> — {author}, *{work}*\n"
 
 with open("quotes.md", "a") as f:
     f.write(entry)
