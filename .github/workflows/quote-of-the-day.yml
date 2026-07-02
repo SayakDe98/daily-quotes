@@ -1,0 +1,24 @@
+name: Quote of the day
+on:
+  schedule:
+    - cron: '30 3 * * *'
+  workflow_dispatch:
+jobs:
+  quote:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+    steps:
+      - name: Checkout repo
+        uses: actions/checkout@v4
+      - name: Fetch and save quote
+        env:
+          API_NINJAS_KEY: ${{ secrets.API_NINJAS_KEY }}
+        run: python generate_tip.py
+      - name: Commit and push
+        run: |
+          git config user.name  "Sayak De"
+          git config user.email "sayakde777@gmail.com"
+          git add quotes.md
+          git diff --cached --quiet || git commit -m "quote: $(date -u +'%Y-%m-%d')"
+          git push
