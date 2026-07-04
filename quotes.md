@@ -47,3 +47,10 @@
 > May we all listen to what's really going on with our friends and loved ones. Listen and stand with them in their pain and their joy.
 >
 > — Napz Cherub Pellazo, **
+
+
+## 2026-07-04
+
+> Shut your eyes to the world of pain, and you also shut your eyes to the world of delight.
+>
+> — Susan Meissner, *The Girl in the Glass*
