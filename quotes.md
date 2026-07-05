@@ -54,3 +54,10 @@
 > Shut your eyes to the world of pain, and you also shut your eyes to the world of delight.
 >
 > — Susan Meissner, *The Girl in the Glass*
+
+
+## 2026-07-05
+
+> If you want to make room for something new, you must let go of something old that no longer serves you.
+>
+> — Roy T. Bennett, *The Light in the Heart*
