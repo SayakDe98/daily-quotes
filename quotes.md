@@ -68,3 +68,10 @@
 > We do not arrive at Love by ourselves. It is through each other that we learn to love ourselves
 >
 > — Dr. Kaushik Ram, **
+
+
+## 2026-07-07
+
+> Don't be afraid of change. You may lose something good, but you will gain something better.
+>
+> — Josef Camilleri, **
