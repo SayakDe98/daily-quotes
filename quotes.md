@@ -82,3 +82,10 @@
 > We honour our existence through devotion. We do everything that brings us closer to our hearts
 >
 > — Dr. Kaushik Ram, **
+
+
+## 2026-07-09
+
+> As with all matters of ht heart, the odds may not be in our favour but it is the only risk worth taking.
+>
+> — Kaushik Ram, *Hidden World: The Inside Story of the Soul*
