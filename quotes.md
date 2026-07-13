@@ -110,3 +110,10 @@
 > In light, there is no darkness; and in darkness, there is no light.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-07-13
+
+> Life will go on without you, because in the end it's not about you.
+>
+> — Matisyahu, **
