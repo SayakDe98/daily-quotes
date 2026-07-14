@@ -117,3 +117,10 @@
 > Life will go on without you, because in the end it's not about you.
 >
 > — Matisyahu, **
+
+
+## 2026-07-14
+
+> You are not alone. There are Freedom Seekers everywhere.
+>
+> — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
