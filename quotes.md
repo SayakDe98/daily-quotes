@@ -124,3 +124,10 @@
 > You are not alone. There are Freedom Seekers everywhere.
 >
 > — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
+
+
+## 2026-07-15
+
+> Sharpen and trust your judgement: learn when spending is a shrewd investment and when it is merely an indulgence
+>
+> — Rasheed Ogunlaru, **
