@@ -131,3 +131,10 @@
 > Sharpen and trust your judgement: learn when spending is a shrewd investment and when it is merely an indulgence
 >
 > — Rasheed Ogunlaru, **
+
+
+## 2026-07-16
+
+> Deep down we all know that freedom is a choice, yet so many of us don’t feel that truth.
+>
+> — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
