@@ -138,3 +138,10 @@
 > Deep down we all know that freedom is a choice, yet so many of us don’t feel that truth.
 >
 > — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
+
+
+## 2026-07-17
+
+> In finding the courage and confidence to escape our cages and shine, we help others do the same.
+>
+> — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
