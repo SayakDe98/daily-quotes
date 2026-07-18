@@ -145,3 +145,10 @@
 > In finding the courage and confidence to escape our cages and shine, we help others do the same.
 >
 > — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
+
+
+## 2026-07-18
+
+> Your heart knows there is a greater version of your life available to you.
+>
+> — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
