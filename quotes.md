@@ -152,3 +152,10 @@
 > Your heart knows there is a greater version of your life available to you.
 >
 > — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
+
+
+## 2026-07-19
+
+> If you want to know a person’s true character, observe how he treats those who don’t matter.
+>
+> — Matshona Dhliwayo, **
