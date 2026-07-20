@@ -159,3 +159,10 @@
 > If you want to know a person’s true character, observe how he treats those who don’t matter.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-07-20
+
+> If you can’t move a mountain by faith, move it by carrying away stone by stone.
+>
+> — Matshona Dhliwayo, **
