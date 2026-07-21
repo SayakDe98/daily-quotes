@@ -166,3 +166,10 @@
 > If you can’t move a mountain by faith, move it by carrying away stone by stone.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-07-21
+
+> Go to the poor: you will find God.
+>
+> — St. Vincent de Paul, **
