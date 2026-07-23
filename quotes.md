@@ -180,3 +180,10 @@
 > Make your dreams your goals, so that they are a part of you and not just a wish.
 >
 > — Jerusha Anna Philipose, **
+
+
+## 2026-07-23
+
+> The biggest magic of the world is DEATH.
+>
+> — Shilpa Dasgupta, **
