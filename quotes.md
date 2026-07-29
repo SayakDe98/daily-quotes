@@ -222,3 +222,10 @@
 > Some escape to LIVE. Some LIVE to escape.
 >
 > — RVM, **
+
+
+## 2026-07-29
+
+> Live more. Worry less. Do what you love.
+>
+> — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
