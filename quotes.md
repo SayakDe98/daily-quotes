@@ -236,3 +236,10 @@
 > When you are trapped in a cage with broken wings, freedom can seem like a faraway deeply buried treasure. But it is always within reach.
 >
 > — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
+
+
+## 2026-07-31
+
+> When life gets too hard on you just forget everything,be yourself and move on
+>
+> — Suhagini, **
