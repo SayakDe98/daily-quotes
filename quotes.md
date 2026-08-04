@@ -264,3 +264,10 @@
 > What you conquer in your soul you conquer in your world.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-08-04
+
+> Some people just carry heavy hearts and more often than not it has nothing to do with you.
+>
+> — Nikki Rowe, **
