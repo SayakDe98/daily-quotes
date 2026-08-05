@@ -271,3 +271,10 @@
 > Some people just carry heavy hearts and more often than not it has nothing to do with you.
 >
 > — Nikki Rowe, **
+
+
+## 2026-08-05
+
+> There are many little ways to enlarge your child’s world. Love of books is the best of all.
+>
+> — –Jacqueline Kennedy Onassis, **
