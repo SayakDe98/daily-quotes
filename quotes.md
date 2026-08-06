@@ -278,3 +278,10 @@
 > There are many little ways to enlarge your child’s world. Love of books is the best of all.
 >
 > — –Jacqueline Kennedy Onassis, **
+
+
+## 2026-08-06
+
+> Fear and greatness cannot exist within the same space.
+>
+> — Willie   James, *Sabrina: The Fall of an Alliance*
