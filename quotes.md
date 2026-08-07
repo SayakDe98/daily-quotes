@@ -285,3 +285,10 @@
 > Fear and greatness cannot exist within the same space.
 >
 > — Willie   James, *Sabrina: The Fall of an Alliance*
+
+
+## 2026-08-07
+
+> Es sind tausend Tropfenin einer Weltnur für uns gemachtTausend Tropfenwenn der Himmel weintund man dennoch lacht
+>
+> — Nina Hrusa, **
