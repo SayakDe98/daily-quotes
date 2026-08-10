@@ -306,3 +306,10 @@
 > There's power within you, and it's your job to turn the lights on.
 >
 > — Victoria Barnes, **
+
+
+## 2026-08-10
+
+> The only reason you should ever look down on someone, is to help them up.
+>
+> — A.J. Garces, **
