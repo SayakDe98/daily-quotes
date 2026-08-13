@@ -327,3 +327,10 @@
 > Everything you do matters. Every time you share and care, the light multiplies.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-13
+
+> We have a saying in the desert: It is better to see the truth, than to imagine it.
+>
+> — Amber Jacobs, **
