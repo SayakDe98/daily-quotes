@@ -348,3 +348,10 @@
 > Whether your glass is half full or half empty, hope can fill it up.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-08-16
+
+> Choosing to unconditionally love others is a path to deep joy.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
