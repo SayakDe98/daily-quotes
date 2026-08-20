@@ -376,3 +376,10 @@
 > If you knew today was your last day here, how would you share your love with the world?
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-20
+
+> Seeking external validation brings disappointment. Validate yourself from within to find true happiness.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
