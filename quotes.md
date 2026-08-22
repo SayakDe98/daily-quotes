@@ -390,3 +390,10 @@
 > Find the light within you through meditation and introspection, and you will illuminate your life from within.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-22
+
+> The team that keeps winning is not the most talented but the most hard-working.
+>
+> — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
