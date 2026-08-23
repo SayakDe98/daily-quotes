@@ -397,3 +397,10 @@
 > The team that keeps winning is not the most talented but the most hard-working.
 >
 > — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
+
+
+## 2026-08-23
+
+> Let go of rejections and focus on self-reflection. For it is within that you will find the light you seek.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
