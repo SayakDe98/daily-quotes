@@ -404,3 +404,10 @@
 > Let go of rejections and focus on self-reflection. For it is within that you will find the light you seek.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-24
+
+> Forgiveness happens every time we surrender our attachment to pain.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
