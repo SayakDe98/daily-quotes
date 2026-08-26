@@ -418,3 +418,10 @@
 > You are a dynamo, and every day offers a choice to create a life you love.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-26
+
+> Live to give and be rich of heart and laughter.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
