@@ -425,3 +425,10 @@
 > Live to give and be rich of heart and laughter.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-27
+
+> Compassion is given freely with no expectation of reward.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
