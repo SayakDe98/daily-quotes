@@ -432,3 +432,10 @@
 > Compassion is given freely with no expectation of reward.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-28
+
+> Start a compassion movement in your community by being a living example of kindness.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
