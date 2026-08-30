@@ -446,3 +446,10 @@
 > The beauty of compassion is free, and everyone is welcome to it.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-08-30
+
+> If it's the other guy's fault, you can't fix it. Don't blame other people for your problems. That gives them all the power. Own up to your mistakes.
+>
+> — Ruthi Postow Birch, *How to Build a Piano Bench*
