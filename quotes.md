@@ -453,3 +453,10 @@
 > If it's the other guy's fault, you can't fix it. Don't blame other people for your problems. That gives them all the power. Own up to your mistakes.
 >
 > — Ruthi Postow Birch, *How to Build a Piano Bench*
+
+
+## 2026-08-31
+
+> Every failure if you let it is an opportunity to reinvent yourself and move forward.
+>
+> — Jerry Gladstone, *The Common Thread of Overcoming Adversity and Living Your Dreams*
