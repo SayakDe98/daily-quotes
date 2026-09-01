@@ -460,3 +460,10 @@
 > Every failure if you let it is an opportunity to reinvent yourself and move forward.
 >
 > — Jerry Gladstone, *The Common Thread of Overcoming Adversity and Living Your Dreams*
+
+
+## 2026-09-01
+
+> Humility is not an attribute but a key to development.
+>
+> — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
