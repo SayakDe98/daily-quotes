@@ -467,3 +467,10 @@
 > Humility is not an attribute but a key to development.
 >
 > — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
+
+
+## 2026-09-02
+
+> Being compassionate can be an exciting exercise of embracing life if you let it be.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
