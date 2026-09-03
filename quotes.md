@@ -474,3 +474,10 @@
 > Being compassionate can be an exciting exercise of embracing life if you let it be.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-09-03
+
+> You have the power to choose compassion in each moment.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
