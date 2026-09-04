@@ -481,3 +481,10 @@
 > You have the power to choose compassion in each moment.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-09-04
+
+> Take a leap of faith on your dreams, not for me and not for the society, just for yourself.
+>
+> — Vinay Garg, **
