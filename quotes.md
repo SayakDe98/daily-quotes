@@ -502,3 +502,10 @@
 > A diamond only truly appreciates pressure the day it begins to shine.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-09-07
+
+> Talk to yourself like a cherished friend. Treat yourself with love and care. You are perfect, just as you are.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
