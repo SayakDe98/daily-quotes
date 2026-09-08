@@ -509,3 +509,10 @@
 > Talk to yourself like a cherished friend. Treat yourself with love and care. You are perfect, just as you are.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-09-08
+
+> Anger has great strength, but no brains. Greed has a great appetite, but no heart.Pride has a great spirit, but no soul.
+>
+> — Matshona Dhliwayo, **
