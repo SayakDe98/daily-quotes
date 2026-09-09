@@ -516,3 +516,10 @@
 > Anger has great strength, but no brains. Greed has a great appetite, but no heart.Pride has a great spirit, but no soul.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-09-09
+
+> Your inner critic is simply a part of you that needs more self-love.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
