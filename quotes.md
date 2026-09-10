@@ -523,3 +523,10 @@
 > Your inner critic is simply a part of you that needs more self-love.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-09-10
+
+> Let the blue of the sky and ocean take your blue away when you feel blue
+>
+> — Munia Khan, **
