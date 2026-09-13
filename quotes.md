@@ -544,3 +544,10 @@
 > Blessed are the misfits who make their own rules and stick to them for they shall inherit peace of mind
 >
 > — Chikamso C. Efobi, *Boss Bible: Daily Wisdom to Inspire the Successful Lifestyle in Every Achiever and Entrepreneur*
+
+
+## 2026-09-13
+
+> You are trapped by nothing more than a poor attitude
+>
+> — Sid Mittra, *To Bee or Not to Bee: Winning Against All Odds*
