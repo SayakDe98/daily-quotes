@@ -551,3 +551,10 @@
 > You are trapped by nothing more than a poor attitude
 >
 > — Sid Mittra, *To Bee or Not to Bee: Winning Against All Odds*
+
+
+## 2026-09-14
+
+> Thinking of only the worse of yourself will eventually destroy you
+>
+> — Sid Mittra, *To Bee or Not to Bee: Winning Against All Odds*
