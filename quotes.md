@@ -565,3 +565,10 @@
 > Stop feeling sorry for yourself and get to work, your future lies ahead of you
 >
 > — Sid Mittra, *To Bee or Not to Bee: Winning Against All Odds*
+
+
+## 2026-09-16
+
+> We are made of stars. So, what's impossible?
+>
+> — Sear Greyson, **
