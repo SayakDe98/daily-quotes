@@ -628,3 +628,10 @@
 > God sometimes uses ugly vessels to carry beautiful things.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-09-25
+
+> Remember it is good to build and bad to destroy
+>
+> — Sid Mittra, *To Bee or Not to Bee: Winning Against All Odds*
