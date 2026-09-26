@@ -635,3 +635,10 @@
 > Remember it is good to build and bad to destroy
 >
 > — Sid Mittra, *To Bee or Not to Bee: Winning Against All Odds*
+
+
+## 2026-09-26
+
+> Sometimes the ultimate act of self-compassion is turning off your phone and looking someone in the eye.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
