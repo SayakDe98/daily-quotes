@@ -642,3 +642,10 @@
 > Sometimes the ultimate act of self-compassion is turning off your phone and looking someone in the eye.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-09-27
+
+> Slowing down your thoughts on a regular basis is the path to consistent peace of mind.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
