@@ -663,3 +663,10 @@
 > The love you share with yourself pays immediate and lifelong dividends of peace.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-09-30
+
+> The mind dies, but its thoughts live on. The heart perishes, but its experiences live on. The body expires, but its spirit lives on.
+>
+> — Matshona Dhliwayo, **
