@@ -670,3 +670,10 @@
 > The mind dies, but its thoughts live on. The heart perishes, but its experiences live on. The body expires, but its spirit lives on.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-10-01
+
+> Speak to yourself with compassion on the inside and you will radiate peace on the outside.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
