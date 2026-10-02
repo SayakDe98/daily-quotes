@@ -677,3 +677,10 @@
 > Speak to yourself with compassion on the inside and you will radiate peace on the outside.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-10-02
+
+> When you look into the mirror, you can’t even see your heart; but when God looks at your shadow, He sees your soul.
+>
+> — Matshona Dhliwayo, **
