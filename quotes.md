@@ -684,3 +684,10 @@
 > When you look into the mirror, you can’t even see your heart; but when God looks at your shadow, He sees your soul.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-10-03
+
+> Peak performance happens when we feel loved and supported from within.
+>
+> — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
