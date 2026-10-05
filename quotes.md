@@ -698,3 +698,10 @@
 > Defeat the demons of self-doubt and self-loathing by being your own hero/heroine of self-compassion.
 >
 > — Amy Leigh Mercree, *The Compassion Revolution: 30 Days of Living from the Heart*
+
+
+## 2026-10-05
+
+> The world is already full of critics; to stand out, be an encourager.
+>
+> — Matshona Dhliwayo, **
