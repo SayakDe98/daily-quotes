@@ -705,3 +705,10 @@
 > The world is already full of critics; to stand out, be an encourager.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-10-06
+
+> Excuses, we all have them, but successful choose not to use them
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
