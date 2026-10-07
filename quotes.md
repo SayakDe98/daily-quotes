@@ -712,3 +712,10 @@
 > Excuses, we all have them, but successful choose not to use them
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-07
+
+> The elevator to success is out of order, as you climb; you re-arrange to suit your own call.
+>
+> — ANIKOR Daniel, **
