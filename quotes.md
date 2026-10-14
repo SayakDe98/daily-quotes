@@ -761,3 +761,10 @@
 > The sun consumes even itself to give light to a dark world
 >
 > — do likewise., **
+
+
+## 2026-10-14
+
+> Never live in fear or regret, live in lessons learned that make you better and keep going forward
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
