@@ -768,3 +768,10 @@
 > Never live in fear or regret, live in lessons learned that make you better and keep going forward
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-15
+
+> The only way to become successful at anything is by overcoming and not giving up
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
