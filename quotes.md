@@ -775,3 +775,10 @@
 > The only way to become successful at anything is by overcoming and not giving up
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-16
+
+> Adversities define what you're made of. Success is you're reward for overcoming them
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
