@@ -789,3 +789,10 @@
 > It doesn't matter if you have to kick, crawl, scratch, hop, limp, hobble, or be carried to the finish line. Just make sure you finish you race.
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-18
+
+> What are you working towards everyday besides death?
+>
+> — Tyconis D. Allison Ty, **
