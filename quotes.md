@@ -796,3 +796,10 @@
 > What are you working towards everyday besides death?
 >
 > — Tyconis D. Allison Ty, **
+
+
+## 2026-10-19
+
+> If you can't finish you can't succeed. You have to become a finisher.
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
