@@ -803,3 +803,10 @@
 > If you can't finish you can't succeed. You have to become a finisher.
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-20
+
+> You have to focus on the finish line from the starting line.
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
