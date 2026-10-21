@@ -810,3 +810,10 @@
 > You have to focus on the finish line from the starting line.
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-21
+
+> Goals want to realize themselves.
+>
+> — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
