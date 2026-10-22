@@ -817,3 +817,10 @@
 > Goals want to realize themselves.
 >
 > — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
+
+
+## 2026-10-22
+
+> If you see a shot, shoot.
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
