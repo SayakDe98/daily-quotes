@@ -838,3 +838,10 @@
 > You can either complain about it or grind, I choose to grind.
 >
 > — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
+
+
+## 2026-10-25
+
+> If you're going to be fighting anyway, why not fight to win and not just to survive.
+>
+> — Kyle Vidrine, *Wake Up The Winner In You: Your Time Is Now*
