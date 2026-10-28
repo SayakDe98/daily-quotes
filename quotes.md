@@ -859,3 +859,10 @@
 > At the end of the day, what makes the biggest difference in your success is the action you take. By Mestar Digital 2017
 >
 > — Mestar Digital, **
+
+
+## 2026-10-28
+
+> Remember, It doesn't matter what you can do, what really matters is what you will do.
+>
+> — Mestar Digital, **
