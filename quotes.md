@@ -894,3 +894,10 @@
 > Because no one is walking in your shoes, only you feel the sores on your feet.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-11-02
+
+> Hard work beats talent, when talent doesn’t work hard
+>
+> — Kandarp Gandhi, *Buddhist Banker : Money can't buy happiness, Wisdom can.*
