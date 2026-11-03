@@ -901,3 +901,10 @@
 > Hard work beats talent, when talent doesn’t work hard
 >
 > — Kandarp Gandhi, *Buddhist Banker : Money can't buy happiness, Wisdom can.*
+
+
+## 2026-11-03
+
+> When time is not in your favor, be in favor of time
+>
+> — Kandarp Gandhi, *Buddhist Banker : Money can't buy happiness, Wisdom can.*
