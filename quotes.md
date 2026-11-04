@@ -908,3 +908,10 @@
 > When time is not in your favor, be in favor of time
 >
 > — Kandarp Gandhi, *Buddhist Banker : Money can't buy happiness, Wisdom can.*
+
+
+## 2026-11-04
+
+> At what point does "one day" become today?
+>
+> — Jennifer Ho-Dougatz, **
