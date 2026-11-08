@@ -936,3 +936,10 @@
 > You don’t have to swim when you know how to walk on water.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-11-08
+
+> Love didn't make you weak, it made you stronger.
+>
+> — Cassandra Clare, *City of Glass*
