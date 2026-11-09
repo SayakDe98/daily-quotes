@@ -943,3 +943,10 @@
 > Love didn't make you weak, it made you stronger.
 >
 > — Cassandra Clare, *City of Glass*
+
+
+## 2026-11-09
+
+> If I stress about a goal, I won't remember to find the way to get there.
+>
+> — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
