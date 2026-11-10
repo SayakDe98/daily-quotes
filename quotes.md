@@ -950,3 +950,10 @@
 > If I stress about a goal, I won't remember to find the way to get there.
 >
 > — Zoltan Andrejkovics, *The Invisible Game: The Mindset of a Winning Team*
+
+
+## 2026-11-10
+
+> First keep the peace within yourself, then you can also bring peace to others.
+>
+> — Thomas Kempis, **
