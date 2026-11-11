@@ -957,3 +957,10 @@
 > First keep the peace within yourself, then you can also bring peace to others.
 >
 > — Thomas Kempis, **
+
+
+## 2026-11-11
+
+> The one who truly sacrifices the most is usually the one who talks about it the least
+>
+> — Todd Stocker, **
