@@ -964,3 +964,10 @@
 > The one who truly sacrifices the most is usually the one who talks about it the least
 >
 > — Todd Stocker, **
+
+
+## 2026-11-12
+
+> We often build our lives in a way that shuts out freedom.
+>
+> — Beth Kempton, *Freedom Seeker: Live More. Worry Less. Do What You Love.*
