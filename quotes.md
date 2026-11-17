@@ -999,3 +999,10 @@
 > A rose does not need to boast of what the whole world already knows
 >
 > — its beauty., **
+
+
+## 2026-11-17
+
+> You be good. That's your business. The rest, leave to God. That's his business.
+>
+> — Fakeer Ishavardas, **
