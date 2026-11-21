@@ -1027,3 +1027,10 @@
 > Don’t always trust what you see. In a bull market even a duck looks like a swan.
 >
 > — Vijay Kedia, **
+
+
+## 2026-11-21
+
+> It is impossible for a star to shine and not get noticed, even in the dark.
+>
+> — Matshona Dhliwayo, **
