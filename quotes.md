@@ -1034,3 +1034,10 @@
 > It is impossible for a star to shine and not get noticed, even in the dark.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-11-22
+
+> Setting goals is the first step in turning the invisible into the visible.
+>
+> — Tony Robbins, **
