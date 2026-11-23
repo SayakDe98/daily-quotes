@@ -1041,3 +1041,10 @@
 > Setting goals is the first step in turning the invisible into the visible.
 >
 > — Tony Robbins, **
+
+
+## 2026-11-23
+
+> Investing is like Yoga. Body, mind and soul have to be aligned.
+>
+> — Vijay Kedia, **
