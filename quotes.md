@@ -1048,3 +1048,10 @@
 > Investing is like Yoga. Body, mind and soul have to be aligned.
 >
 > — Vijay Kedia, **
+
+
+## 2026-11-24
+
+> Chase the story behind the stock, not the money on the table. Money will make you rich, but the story will make you wealthy.
+>
+> — Vijay Kedia, **
