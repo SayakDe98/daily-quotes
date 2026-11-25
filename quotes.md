@@ -1055,3 +1055,10 @@
 > Chase the story behind the stock, not the money on the table. Money will make you rich, but the story will make you wealthy.
 >
 > — Vijay Kedia, **
+
+
+## 2026-11-25
+
+> Rainbows earn their brightest colors in the storm.
+>
+> — Matshona Dhliwayo, **
