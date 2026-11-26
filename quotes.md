@@ -1062,3 +1062,10 @@
 > Rainbows earn their brightest colors in the storm.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-11-26
+
+> Better to lose money in a good company rather than making money in a bad one.
+>
+> — Vijay Kedia, **
