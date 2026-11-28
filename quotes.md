@@ -1076,3 +1076,10 @@
 > It is not the size of a seed, but the size of what rises from it.
 >
 > — Matshona Dhliwayo, **
+
+
+## 2026-11-28
+
+> To wake up every day with a whisper of a dream and then put pen to paper to make it a reality
+>
+> — Samuel Colbran, *Kayla: Genius*
